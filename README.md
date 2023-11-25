@@ -1,7 +1,3 @@
-# Team-2
-
-<br>
-
 # Team Member
 * 최문경
 * 최규원
