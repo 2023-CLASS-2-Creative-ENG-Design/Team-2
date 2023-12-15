@@ -22,6 +22,10 @@
 
 ![IMG_0707](https://github.com/2023-CLASS-2-Creative-ENG-Design/Team-2/assets/128119495/18c8c9cd-4d83-4ea2-aff8-f79b88d789c7)
 
+동영상 링크: https://youtu.be/2F31VABZQTY
+
 ## 프로젝트 외관
 
 ![IMG_0708](https://github.com/2023-CLASS-2-Creative-ENG-Design/Team-2/assets/128119495/202ac4c7-0bc1-4b97-8b41-c3fc70fb88fe)
+
+동영상 링크: http://naver.me/GWJIpJJT
